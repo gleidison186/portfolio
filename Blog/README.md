@@ -7,13 +7,10 @@ Prof. Alexander Robert Kutzke
 
 
 Nome: Guilherme Vinicius Valério<br>
-GRR: 20184636
 
 Nome: Gleidison dos Santos Novais<br>
-GRR: 20186250
 
 Nome: Eduardo Gabriel<br>
-GRR: 20184771
 
 
 **Tema:** Blog de Entretenimento Virtual
